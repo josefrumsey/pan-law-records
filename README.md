@@ -1,5 +1,8 @@
 # **Plan Law Records or: My Plans for Pan Law Records**
 
+<<<Note: This document is super incomplete and probably raises more questions than it answers.  I plan to fill things in and eventually turn it into a wiki that'll be hosted on the label's website>>>
+
+
 So here's how I think I'm going to do things with the label (the idea is still in development, so this may change).
 
 ---
